@@ -1,4 +1,1 @@
 uuhnnnnn
-
-
-kanawan dabo
